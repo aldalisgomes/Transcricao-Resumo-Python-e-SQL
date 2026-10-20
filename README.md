@@ -4,7 +4,7 @@ Este repositório contém um resumo simples com anotações de estudo para consu
 
 ## Acesso
 
-* [Visualizar versão online](https://drive.google.com/file/d/1-YXq8M1qBR96Vu8n1Bv7dBoVO3IpP3Xo/view?usp=sharing)
+* [Visualizar versão online](https://drive.google.com/drive/folders/1kNWckebkgieSMkjAtz2A50KAMcoCsHwr?usp=drive_link)
 
 ---
 
