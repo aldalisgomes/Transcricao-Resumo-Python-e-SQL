@@ -1,0 +1,1 @@
+# Transcricao-Resumo-Python-e-SQL
